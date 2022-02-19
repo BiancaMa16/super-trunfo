@@ -1,0 +1,2 @@
+# Super Trunfo
+Snoopy
